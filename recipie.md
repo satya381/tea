@@ -1,0 +1,1 @@
+For 1 cup of tea, you need half a cup of water. Boil the water for a couple minutes, then add 1 spoon of tea leaves. After waiting a few minutes, add 1 spoon of sugar, and half a cup of milk. Then, for flavoring, add a pinch of cardamom. Let it boil for a couple of minutes, then strain in a cup, and enjoy
